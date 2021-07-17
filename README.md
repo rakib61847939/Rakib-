@@ -1,0 +1,2 @@
+# Rakib-
+Welcome to my profile! We have been a professional Graphics Designer, 2D &amp; 3D Animator, Models and Video artist for over 03 years, creating Logo, Flyer, Illustrations etc. for various companies and individuals. My work is driven by my passion and polished by my skills and experiences of working as a professional. I offer you unique, fun and creative graphics to turn your project in to a work of art and you can get as many revisions as you would like. Software that I'm using:- Adobe Photoshop, Illustrator, Flash, Dreamweaver, Corel Draw, paper and pencil.
